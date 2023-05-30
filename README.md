@@ -1,1 +1,1 @@
-# huskyncu.github.io
+# hakkaweb
